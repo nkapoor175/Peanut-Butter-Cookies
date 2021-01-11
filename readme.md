@@ -1,0 +1,1 @@
+Packed with double the peanut butter, these very peanut butter cookies boast a dense flavor, remarkably soft texture, thick center, and a deliciously crumbly edge. My go-to best peanut butter cookie recipe!
